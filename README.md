@@ -87,7 +87,7 @@ https://www.facebook.com/infinitytrickster/
 ### Facebook page:
 https://www.facebook.com/infinitytrickster/
 
-### Instagram: 
+      ### Instagram: fathimaaraihan
 https://www.instagram.com/guyinwhiteshirt
 
 
